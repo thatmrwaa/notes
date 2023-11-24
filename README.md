@@ -1,2 +1,2 @@
 # notes
-All my school and academic notes
+Hello! These are all my notes for school and non-school still academic stuff.
